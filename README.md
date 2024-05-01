@@ -8,4 +8,4 @@ The new firmware are and will ever be free for GS2025 users
 
 Full synth available in the stores and as updatable kit for MKII customers
 
-https://linktr.ee/sphericalsoundsociety
+sphericalsoundsociety.com
